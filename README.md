@@ -5,7 +5,7 @@ Ever since I was a kid, I've always had this vivid imagination of making a diffe
 
 The amazing thing about this industry is that there's always something new to learn, whether it's the latest technologies, techniques, or mind-blowing concepts. 🤤 Each day is a journey of discovery, and every new thing I learn changes my perspective on so many things. 😱 The best part is that I can apply my knowledge and skills to build whatever I want, however I want. 💪 I feel empowered to create something meaningful and leave a lasting impact for the next generation to come. 👶
 
-I'm always open to helping others and making new friends along the way. 🤗 So, if you need any assistance or simply want to connect, feel free to reach out to me. Let's embark on this exciting journey together! ✨🌟</h3>
+I'm always open to helping others and making new friends along the way. 🤗 So, if you need any assistance or simply want to connect, feel free to reach out to me. Let's embark on this exciting journey together! ✨🌟🌠✨🎉🌈🔥🚀🌟🎈🔧🔨💻👨‍💻🌍🤝🌻🌼💡📚🌐🔍📝🔐🌱🌺💪💡🎓🎯💼🏅📈💯🤩🥳🎵🎶🎮🎧🌇🌌🌞🌝🍀🌺⚡🌙🦄🦾👶💥❤️🧡💛💚💙💜🤗😃😄😊😍🥰😎🥳🙌🙏🔥</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=waeeelhajji&label=Profile%20views&color=0e75b6&style=flat" alt="waeeelhajji" /> </p>
 
