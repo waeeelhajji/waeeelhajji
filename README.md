@@ -3,7 +3,9 @@
 
 Every day brings new opportunities to learn, grow, and innovate. 💡 I love building meaningful solutions 🌍 and mentoring students, constantly exploring new ways to make a difference. 🔄 The evolving nature of this field fuels my curiosity and allows me to tackle challenges with fresh perspectives.
 
-I'm always open to helping others and making new friends along the way. 🤗 So, if you need any assistance or simply want to connect, feel free to reach out to me. Let's embark on this exciting journey together! ✨🌟🌠✨🎉🌈🔥🚀🌟🎈🔧🔨💻👨‍💻🌍🤝🌻🌼💡📚🌐🔍📝🔐🌱🌺💪💡🎓🎯💼🏅📈💯🤩🥳🎵🎶🎮🎧🌇🌌🌞🌝🍀🌺⚡🌙🦄🦾👶💥❤️🧡💛💚💙💜🤗😃😄😊😍🥰😎🥳🙌🙏🔥</h3>
+I'm always open to helping others and making new friends along the way. 🤗 So, if you need any assistance or simply want to connect, feel free to reach out to me. Let's embark on this exciting journey together! ✨🌟 </h3>
+
+<p>🌠✨🎉🌈🔥🚀🌟🎈🔧🔨💻👨‍💻🌍🤝🌻🌼💡📚🌐🔍📝🔐🌱🌺💪💡🎓🎯💼🏅📈💯🤩🥳🎵🎶🎮🎧🌇🌌🌞🌝🍀🌺⚡🌙🦄🦾👶💥❤️🧡💛💚💙💜🤗😃😄😊😍🥰😎🥳🙌🙏🔥</p>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=waeeelhajji&label=Profile%20views&color=0e75b6&style=flat" alt="waeeelhajji" /> </p>
 
