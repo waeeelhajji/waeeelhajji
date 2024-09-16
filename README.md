@@ -1,9 +1,7 @@
 <h1 align="center">Hi 👋, I'm Wael Hajji</h1>
-<h3 align="center">✨ Hey there! I'm a passionate Full-Stack Web Developer and an instructor at CodingDojo. 🥷 I'm absolutely in love with what I do ❤️, and it brings me immense joy to wake up each morning knowing that I have the opportunity to be a hero in my own way and help people around the world. 🦸‍♂️💻
+<h3 align="center">🚀 Passionate Full-Stack Web Developer and Instructor at Nefel Education~CodingDojo, driven by the opportunity to make an impact through education and technology. 💻 The IT industry empowers me to pursue my passion and help others achieve their potential. 🌟
 
-Ever since I was a kid, I've always had this vivid imagination of making a difference and positively impacting lives. And guess what? The IT industry has given me the perfect platform to fulfill that dream. 🎈 With each passing day, I'm getting closer to becoming the hero I've always wanted to be. (●'◡'●) I've discovered my passion and the love for my work, which fills me with happiness and satisfaction.
-
-The amazing thing about this industry is that there's always something new to learn, whether it's the latest technologies, techniques, or mind-blowing concepts. 🤤 Each day is a journey of discovery, and every new thing I learn changes my perspective on so many things. 😱 The best part is that I can apply my knowledge and skills to build whatever I want, however I want. 💪 I feel empowered to create something meaningful and leave a lasting impact for the next generation to come. 👶
+Every day brings new opportunities to learn, grow, and innovate. 💡 I love building meaningful solutions 🌍 and mentoring students, constantly exploring new ways to make a difference. 🔄 The evolving nature of this field fuels my curiosity and allows me to tackle challenges with fresh perspectives.
 
 I'm always open to helping others and making new friends along the way. 🤗 So, if you need any assistance or simply want to connect, feel free to reach out to me. Let's embark on this exciting journey together! ✨🌟🌠✨🎉🌈🔥🚀🌟🎈🔧🔨💻👨‍💻🌍🤝🌻🌼💡📚🌐🔍📝🔐🌱🌺💪💡🎓🎯💼🏅📈💯🤩🥳🎵🎶🎮🎧🌇🌌🌞🌝🍀🌺⚡🌙🦄🦾👶💥❤️🧡💛💚💙💜🤗😃😄😊😍🥰😎🥳🙌🙏🔥</h3>
 
